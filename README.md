@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Emre Altuner.I'm freshman at Bilkent University.
+- 👋 Hi, I’m Emre Altuner.I'm sophomore at Bilkent University.
